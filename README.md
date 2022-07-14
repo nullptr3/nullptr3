@@ -1,0 +1,3 @@
+- Computer Engineer
+- C++ Masochist
+- Barely functions as a person.
