@@ -1,3 +1,4 @@
-- Computer Engineer
-- C++ Masochist
-- Barely functions as a person.
+chronic video essay consumer
+- chemical maker
+- cactus torturer
+- government defrauder
